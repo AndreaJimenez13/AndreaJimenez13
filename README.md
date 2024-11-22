@@ -1,10 +1,7 @@
 - 👋 Hi, I’m @AndreaJimenez13
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning 💻🤎
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: Andy's ❤️
-- ⚡ Fun fact: ...
+  
+-  Andy's ❤️
+  
 - I Love traveling 💚✈️
 
   
